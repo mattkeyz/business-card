@@ -1,1 +1,1 @@
-iam martins michael,a developing web designer
+i am martins michael,a developing web designer
